@@ -22,4 +22,5 @@ Here are some ideas to get you started:
 **Ссылки на другие социальные сети и статус занятости**. 
 
 Telegram - https://t.me/ipodkorytov
+
 В данный момент я рассматриваю предложения.
